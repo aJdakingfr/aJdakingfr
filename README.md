@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... learning to code
 - 🌱 I’m currently learning ... how to code
 - 💞️ I’m looking to collaborate on ... my youtube
-- 📫 How to reach me ... @adrain.perd@gmail.com
+- 📫 How to reach me ... @adrainperd@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ... im very funny
 
